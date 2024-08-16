@@ -1,1 +1,1 @@
-# dekopinwil-jawa-timur
+# dekopinda-karanganyar
